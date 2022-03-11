@@ -1,1 +1,1 @@
-# Research-Module-Financial-Economics
+# Research Module in Financial Economics
